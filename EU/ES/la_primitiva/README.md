@@ -1,5 +1,5 @@
 La primitiva
 ============
 
-Url: https://juegos.loteriasyapuestas.es/jugar/la-primitiva/apuesta/?access=headercms&lang=en
+Url: https://www.loteriasyapuestas.es/en/la-primitiva
 
